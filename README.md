@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Illuminati
 - 📫 How to reach me: ouija board
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: CIA killed JFK and LMk
+- ⚡ Fun fact: CIA killed JFK and LMK
 <!---
 AxyutitsArtyom/AxyutitsArtyom is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
